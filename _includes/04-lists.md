@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+-  Bungou stray dogs
+-  black clothes
+-  manga
+-  the enemies to lovers trope 
+-  philosophy
+-  infp's and estj's
