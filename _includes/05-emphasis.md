@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Well um idk *anthing* about computer science but at least im learning!! i **really** **really** enjoy *music* and such, but also i like to read, draw, watch anime, read manga and like do other stuff! 
