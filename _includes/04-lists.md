@@ -1,0 +1,6 @@
+-  Bungou stray dogs
+-  black clothes
+-  manga
+-  the enemies to lovers trope 
+-  philosophy
+-  infp's and estj's

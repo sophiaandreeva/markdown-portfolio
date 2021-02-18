@@ -1,0 +1,1 @@
+Well um idk *anthing* about computer science but at least im learning!! i **really** **really** enjoy *music* and such, but also i like to read, draw, watch anime, read manga and like do other stuff! 
